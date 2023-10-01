@@ -1,1 +1,1 @@
-# Etiya Homework
+# Etiya Academy Homework
